@@ -1,0 +1,1 @@
+For making a cup of tea, first, pour some water in a pan and put it on the stove. Let the water boil for some time. In the meantime put tea leaves into a kettle. Put one spoonful of tea leaves for each cup
